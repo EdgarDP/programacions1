@@ -1,1 +1,1 @@
-Hola clase
+Adiós salón
